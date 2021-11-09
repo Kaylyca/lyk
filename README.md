@@ -1,1 +1,22 @@
-# lyk
+ALL IN ONE SCRIPT
+
+AUTO 🚘 MR AUTO 🚘 POST 📬 AUTO 🚘 MOMENTS
+
+--------------------------------------------
+
+MAIN 1 USER NAME:👉
+
+MAIN 2 USER NAME:👉
+
+MAIN 3 USER NAME:👉
+
+MAIN 4 USER NAME:👉
+
+DUMMY ACCT PASSWORD:👉
+
+DUMMY COUNT:👉
+
+DUMMY NAME:👉
+
+DUMMY NAME:👉
+
